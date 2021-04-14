@@ -1,3 +1,2 @@
 # bastelpichisec.github.io
-
-hallo
+This is a veeery useless page that i created because of to much free time....
